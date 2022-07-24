@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Bashy
+- 👀 I’m interested in Coding and stuff
+- 🌱 I’m currently learning Minecraft Datapacks
+- 💞️ I’m looking to collaborate on Anything about datapack or custom mods or just coding
+- 📫 How to reach me Minecraft or Gmail
